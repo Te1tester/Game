@@ -1,1 +1,1 @@
-https://servermodtest.000webhostapp.com/
+https://servermodtest.000webhostapp.com
