@@ -1,1 +1,1 @@
-https://servermodtest.000webhostapp.com
+http://cpanel.ihostfull.com
