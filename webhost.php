@@ -1,1 +1,1 @@
-http://cpanel.ihostfull.com
+http://1hitmod.ihostfull.com
