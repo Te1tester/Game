@@ -1,1 +1,1 @@
-http://1hitmod.ihostfull.com
+http://1hitmod.atwebpages.com
